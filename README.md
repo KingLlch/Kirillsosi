@@ -1,0 +1,2 @@
+# KogdaGOG
+Nevajno
